@@ -4,3 +4,6 @@ pure history students you are on your own (I just don't happen to know someone f
 
 
 Ten year series from 2012 to 2021
+if you are using chromebook, it is smarter to just download it.
+
+have fun
