@@ -7,3 +7,4 @@ Ten year series from 2012 to 2021
 if you are using chromebook, it is smarter to just download it.
 
 have fun
+good luck lmao
